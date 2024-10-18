@@ -1,4 +1,4 @@
-## **##  Mapa de Carreira do Célio Amorim: Uma Jornada Interativa! **
+## ** Mapa de Carreira do Célio Amorim: Uma Jornada Interativa! **
 
 **O que você vai encontrar por aqui:**
 
